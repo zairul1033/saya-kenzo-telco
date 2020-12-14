@@ -1,1 +1,1 @@
-# saya-kenzo-telco
+SELAMAT DATANG KE AUTO SCRIPT KENZO TELCO
